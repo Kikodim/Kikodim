@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Kiko , working my way up to a software developer, self taught.
